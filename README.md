@@ -10,7 +10,7 @@
 
 ## 书单
 
-
+[工作、消费主义和新穷人](https://book.douban.com/subject/35593780/)
 
 
 
